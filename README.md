@@ -1,4 +1,7 @@
 # Restaurant website
+
+Link To Check The Website: https://sites.google.com/view/rocky-rnr-restaurant/home
+
 It sounds like you've created an extraordinary restaurant website using Google Sites. The website showcases your creativity and attention to detail. From the moment visitors land on your site, they are greeted with a visually stunning layout that reflects your unique style and captures the essence of your restaurant.
 
 The homepage welcomes guests with a captivating image that sets the mood for the dining experience you offer. The navigation is seamless and intuitive, guiding visitors through various sections with ease. As they explore, they'll discover meticulously crafted pages that showcase your restaurant's story, menu offerings, ambience, and special events.
